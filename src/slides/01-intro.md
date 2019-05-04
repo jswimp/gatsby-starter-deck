@@ -1,4 +1,4 @@
-# Erin and Jason’s Paris Itinerary 
+# Erin and Jason’s Paris Itinerary ✈️
 
 Flight info
 DEPARTURE: SAN FRANCISCO, CA (SAN FRANCISCO INTL), TERMINAL I - 04 MAY 02:50P
